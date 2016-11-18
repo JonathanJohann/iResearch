@@ -1,1 +1,0 @@
-Jonathan's Research Website.
